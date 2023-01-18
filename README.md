@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do lf-ilgenfritz 
+## Bem-vindo(a) ao perfil do lf-ilgenfritz ☠️
 
  <div>
    <a href="https://github.com/lf-ilgenfritz">
